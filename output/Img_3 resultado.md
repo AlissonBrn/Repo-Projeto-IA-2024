@@ -1,0 +1,3 @@
+A imagem mostra um outdoor colocado na calçada ao lado de uma estrada com uma faixa de ônibus e um carro visíveis. O anúncio apresenta um texto grande que diz “ADIVINHA O QUE TEM AQUI?”. Abaixo desse texto, há elementos gráficos que parecem respingos amarelos com um emblema circular azul no centro contendo texto branco. O emblema tem a sigla “FASA” e abaixo dela há outra linha de texto que não está claramente legível devido à resolução da imagem. O fundo do anúncio é azul, destacando-se no ambiente urbano.
+
+Este tipo de anúncio utiliza tipografia e contraste de cores ousados para chamar a atenção e envolve os transeuntes ao fazer uma pergunta interativa. Parece ser uma peça publicitária criativa, possivelmente de estudantes ou uma campanha local.
